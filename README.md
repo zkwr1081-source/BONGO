@@ -36,3 +36,9 @@ Contact: open an inquiry through the repository owner’s GitHub profile: https:
 
 ---
 This page is an acquisition notice, not proof of title, a warranty, or a completed sale.
+
+## التواصل المباشر مع البائع
+
+للاستفسار عن فرصة الاستحواذ المذكورة أعلاه، أو طلب مناقشة النطاق والسعر والفحص الفني، تواصل مباشرة عبر WhatsApp:
+
+**https://wa.me/963964982098**
