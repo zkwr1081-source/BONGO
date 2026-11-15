@@ -41,4 +41,4 @@ This page is an acquisition notice, not proof of title, a warranty, or a complet
 
 للاستفسار عن فرصة الاستحواذ المذكورة أعلاه، أو طلب مناقشة النطاق والسعر والفحص الفني، تواصل مباشرة عبر WhatsApp:
 
-**https://wa.me/963964982098**
+**https://github.com/zkwr1081-source**
