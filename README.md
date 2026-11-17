@@ -32,7 +32,9 @@ Serious buyers should provide:
 
 **No source archive, credentials, private keys, customer data, or deployment secrets will be published here.** Source delivery and any transfer of rights occur only after the scope, ownership, and cleared payment are verified.
 
-Contact: open an inquiry through the repository owner’s GitHub profile: https://github.com/zkwr1081-source
+Contact:
+- GitHub: https://github.com/zkwr1081-source
+- Email: zkwr1081@gmail.com
 
 ---
 This page is an acquisition notice, not proof of title, a warranty, or a completed sale.
