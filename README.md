@@ -32,15 +32,11 @@ Serious buyers should provide:
 
 **No source archive, credentials, private keys, customer data, or deployment secrets will be published here.** Source delivery and any transfer of rights occur only after the scope, ownership, and cleared payment are verified.
 
-Contact:
+## Contact the seller
+
+- WhatsApp: [0964982098](https://wa.me/963964982098)
 - GitHub: https://github.com/zkwr1081-source
 - Email: zkwr1081@gmail.com
 
 ---
 This page is an acquisition notice, not proof of title, a warranty, or a completed sale.
-
-## التواصل المباشر مع البائع
-
-للاستفسار عن فرصة الاستحواذ المذكورة أعلاه، أو طلب مناقشة النطاق والسعر والفحص الفني، تواصل مباشرة عبر WhatsApp:
-
-**https://github.com/zkwr1081-source**
